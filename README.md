@@ -5,3 +5,6 @@ https://user-images.githubusercontent.com/37611702/136385934-4adf8266-7b67-4e7e-
 
 ## Ekip Üyeleri
 Merve YİĞİT
+Oğuzhan ÖZOĞUL
+Faruk CESUR
+Oğuzhan TÖNGE
